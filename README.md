@@ -1,0 +1,1 @@
+# Turk_Lirasi_karsiligi_d-viz_piyasas-
